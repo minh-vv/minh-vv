@@ -1,7 +1,4 @@
-# 👋 Hi there! I'm Minh Vu Van
-
 ## 🙏 Nam Mô Đại Bi Quán Thế Âm Bồ Tát
-
 Nam mô hắc ra đát na đa ra dạ da  
 Nam mô a rị da  
 Bà lô yết đế thước bát ra da  
